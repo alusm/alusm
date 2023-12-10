@@ -6,7 +6,7 @@
 
 I hope to someday actually reach out to amazing people in coding.
 
-Most of the stuff i like are games, and nature, and also cooking, my favorite games are, ultrakill, one shot, lethal company, and war thunder!, Tea lover too hehe
+Most of the stuff i like are games, and nature, and also cooking, my favorite games are, ultrakill, one shot, lethal company, Deepwoken, and war thunder!, Tea lover too hehe
 
 print ("The Flames Shall call the Ferryman.")
 
