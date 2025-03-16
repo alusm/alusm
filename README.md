@@ -1,27 +1,13 @@
 -hi fazgang im andrew
-- I’m interested mostly on C++ And LUA.
 - I’m currently learning Lua And C++
-- discord:rainwav
+- discord: deadfurfag
 
-I hope to someday actually reach out to amazing people in coding.
+14 years old
+
+i like a lotta stuff, but i won't be saying everything here figure it out by yourself :3c
 
 Most of the stuff i like are games, and nature, and also cooking, my favorite games are, ultrakill, one shot, lethal company, Deepwoken, and war thunder!, Tea lover too hehe
 
-
-
-⠀⠀⠀⠀⠀⢠⣒⣤⠤⣀⣀
-⠀⠀⠠⣒⢤⠋⠂⠈⡷⠒⠒⣗⠢
-⠀⢠⠋⠀⡇⠀⠀⣰⠁⠀⢀⡼⠠⣱
-⠀⢈⠀⠀⣧⣀⣠⣏⢀⠴⠋⠉⠙⡟
-⠀⠘⣄⢠⠟⠉⠉⢻⡎⠀⠀⠀⣸⠇⢸
-⠀⢀⠜⡏⠁⠀⠀⠀⣧⣀⣠⠾⠋⠀⡜
-⠀⡜⠀⠁⠀⠀⠀⠀⠘⣷⠀⠀⡠⠊
-⠀⠹⣁⡤⢾⡀⠀⠀⢠⠏⠀⡐⠁
-⠀⠀⠃⢴⠀⠉⠒⠚⠃⠀⢠⠁
-⠀⢸⠀⠈⠁⠀⠀⠀⠀⠀⡎
-⠀⢸⠀⠀⠀⠀⠀⠀⠀⢠⠁
-⠀⠸⠀⠀⠀⠀⠀⠀⠀⢸⠀⠀
-⠀⠀⠤⠤⠤⠤⠤⠤⠤⠤
 
 
 
