@@ -2,6 +2,8 @@
 - I’m currently learning Lua And C++
 - discord: deadfurfag
 
+https://www.amazon.com/hz/wishlist/ls/9Q1FUZ99JXQS?ref_=wl_share
+
 14 years old
 
 i like a lotta stuff, but i won't be saying everything here figure it out by yourself :3c
